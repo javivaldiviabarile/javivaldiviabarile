@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @javivaldiviabarile
 - 👀 I’m interested in Analytics, Innovation and Sustentability
+- 💞️ I'm Proactive, committed and innovative. With high capacity to adapt to change and solve problems. With skills to exercise leadership by mobilizing teams to meet objectives in a collaborative manner, promoting a good work environment.
+- 💞️ I love sports like Voleyball, Sky and Trekking.
 - 🌱 I’m currently learning Leadership
-- 💞️ I’m looking to collaborate on L´Oreál and Walmart Chile
 - 📫 How to reach me mail: jvbarile@gmail.com phone: +56976181017
 
 <!---
